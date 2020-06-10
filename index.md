@@ -17,5 +17,5 @@
  <p> oh well what a liar in ww2 on it</p>
  <img src = "https://i.redd.it/78lifidld3h21.jpg">
 
-<p> well the tiger is to powerful to me😧</p>
+<p> well the tiger is to powerful man😎ohhh</p>
 <img src = "https://i.pinimg.com/564x/e6/6a/60/e66a60bc47d9c1a2dbc3839663ab1d17.jpg">
